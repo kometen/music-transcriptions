@@ -1,1 +1,1 @@
-Transription for guitar of songs I like.
+Transcription for guitar of songs I like.
